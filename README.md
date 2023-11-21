@@ -1,6 +1,6 @@
 
 ![image](https://github.com/OM-TRIPATHI1513/restaurant_websites/assets/90430815/846e2d3e-3c9a-4e4b-89e4-6c8c722e7081)
-![image](https://github.com/OM-TRIPATHI1513/restaurant_websites/assets/90430815/b60d8526-03bf-45fa-be2f-0e2ff54aab09)
+![Screenshot (358)](https://github.com/OM-TRIPATHI1513/restaurant_websites/assets/90430815/185a2cbd-419e-4ac3-88b6-3ee618f3477e)
 ![image](https://github.com/OM-TRIPATHI1513/restaurant_websites/assets/90430815/4d03c0e5-39c4-453b-8c01-f6afa1ce4791)
 ![image](https://github.com/OM-TRIPATHI1513/restaurant_websites/assets/90430815/87018ea0-7dc7-47ff-aa65-02cb08d6e373)
 ![image](https://github.com/OM-TRIPATHI1513/restaurant_websites/assets/90430815/10d001fc-e5cc-47ae-a899-4f8f35f42848)
